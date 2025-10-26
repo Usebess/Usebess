@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Usebess?tab=repositories](https://github.com/Usebess?tab=repositories)
 
-- 📫 How to reach me **mkokovixin@gmail.com, https://discord://-/users/294512424629829632**
+- 📫 How to reach me **mkokovixin@gmail.com, discord://-/users/294512424629829632**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
